@@ -1,1 +1,1 @@
-prectice sesion
+Starting to code today, so cool
